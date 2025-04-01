@@ -1,1 +1,0 @@
-# Professor Afonso é Legal
